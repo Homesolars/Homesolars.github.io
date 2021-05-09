@@ -1,1 +1,0 @@
-# Homesolars.github.io
